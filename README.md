@@ -12,8 +12,13 @@ The only reason I am keeping this GitHub profile active is that there are still 
 - **Online Handles**: Every handle online has been updated to reflect my new username, `EstherSoftwareDev`. In cases where there's a 15-character limit, I use `EstherWhiteDev`.
 - **Email Address**: My email has also changed to match the new branding. Please check the [new domain](https://esthersoftware.dev) for updated contact details.
 
-Let this be the end of people addressing me by calling me "Mona," which was never part of my name! 
-Thank you for your understanding as I move forward with this change!
+
+Let this mark the end of anyone addressing me as `Mona`. It was never part of my name—it was simply a fragment of my old username. 
+
+I hope this clears up any confusion moving forward.
+
+Thank you for your understanding and support as I embrace this new chapter!
+
 
 Best regards,  
 **Esther White**
