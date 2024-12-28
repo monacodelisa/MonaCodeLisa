@@ -13,7 +13,7 @@ The only reason I am keeping this GitHub profile active is that there are still 
 - **Email Address**: My email has also changed to match the new branding. Please check the [new domain](https://esthersoftware.dev) for updated contact details.
 
 
-Let this mark the end of anyone addressing me as `Mona`. It was never part of my name—it was simply a fragment of my old username. 
+Let this mark the end of anyone addressing me as `Mona`. It was never part of my name - it was simply a fragment of my old username. 
 
 I hope this clears up any confusion moving forward.
 
